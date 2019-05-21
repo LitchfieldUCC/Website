@@ -6,14 +6,12 @@ name = "pypi"
 [packages]
 pelican = "*"
 icalendar = "*"
+invoke = "*"
+ghp-import = "*"
 
 [dev-packages]
 pylint = "*"
 bandit = "*"
 
 [requires]
-python_version = "3.7"
-
-[scripts]
-nikola-build = "nikola build"
-nikola-serve = "nikola serve --browser"
+python_version = "3.7.3"
