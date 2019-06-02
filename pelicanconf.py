@@ -34,7 +34,11 @@ ARTICLE_URL     = '{category}/{date:%Y}/{date:%m}/{date:%d}/{slug}/'
 ARTICLE_SAVE_AS = '{category}/{date:%Y}/{date:%m}/{date:%d}/{slug}/index.html'
 STATIC_PATHS = [
     'pastors-corner/images',
+    'extra/CNAME',
 ]
+EXTRA_PATH_METADATA = {
+    'extra/CNAME' : {'path': 'CNAME'},
+}
 PLUGIN_PATHS = [
     f'{THEME}plugins/',
     '../Pelican-Plugins/',
