@@ -49,7 +49,7 @@ Specifically, we:
 - Provide a place of worship for all who enter our doors.
 - Support numerous Christian missions, both local and abroad.
 - Study the Bible.
-- Endeavor to serer our local community.
+- Endeavor to serve our local community.
 
 
 Special Services & Events

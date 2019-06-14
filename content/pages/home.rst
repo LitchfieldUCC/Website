@@ -16,13 +16,8 @@ The Church is located at:
 | 3928 Avon Lake Road
 | Litchfield, Ohio 44253
 
-And we recieve mail at:
-
-| P.O. Box 209
-| Litchfield, Ohio 44253
-
-To contact us by phone, call:
+To contact us by phone, please leave a message at:
 
 | (330) 723-5835
-| or
-| (330) 591-7627
+
+And we will get back to you as soon as possible.
