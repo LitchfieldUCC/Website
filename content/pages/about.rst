@@ -69,3 +69,14 @@ We also have special services of worship for:
 - Community Lenten Services of Worship
 - Maundy Thursday
 - Easter Sunrise
+
+
+International Support
+---------------------
+
+`Mike and Peggy Yost have been in Balfate, Honduras since 2002! <https://cornerstoneinternational.org/yost/>`_
+They are active in their community and local Honduran church. Mike is the head
+maintenance and construction supervisor for `Loma de Luz Hospital <http://www.crstone.org>`_
+and related ministries and can fix almost anything! Peggy also works in the
+Hospital in wound care.
+
