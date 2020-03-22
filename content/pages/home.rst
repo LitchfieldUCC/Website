@@ -3,6 +3,15 @@ Welcome to Litchfield United Church of Christ
 
 :save_as: index.html
 
+Due to COVID-19 and for the safety of our congregation, families, and
+community, Litchfield UCC will suspend all services and activities for
+the remainder of March. We will re-evaluate the situation at that time. Our
+Corned Beef and Cabbage dinner scheduled for March 21 has been cancelled and our
+Clothing Closet will remain closed. Thank you for your understanding, please
+stay safe and we will continue to pray for all.
+
+**- The Litchfield UCC Council**
+
 Our Sunday Service starts at 10:00 am every Sunday.
 
 We host Communion on the first Sunday of every Month.
