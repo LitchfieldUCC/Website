@@ -7,6 +7,8 @@ Due to COVID-19 and for the safety of our congregation, families, and community,
 
 **- The Litchfield UCC Council**
 
+We are now publishing our Sunday Sermons from Pastor Pam Hahn as a `podcast </podcast>`_.
+
 Our Sunday Service starts at 10:00 am every Sunday.
 
 We host Communion on the first Sunday of every Month.

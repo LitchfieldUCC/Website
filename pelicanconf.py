@@ -29,6 +29,7 @@ DISPLAY_PAGES_ON_MENU = False
 MENUITEMS = (
     ('About Our Church', '/about'),
     ('Calendar', '/calendar'),
+    ('Podcast', '/podcast'),
 )
 ARTICLE_URL     = '{category}/{date:%Y}/{date:%m}/{date:%d}/{slug}/'
 ARTICLE_SAVE_AS = '{category}/{date:%Y}/{date:%m}/{date:%d}/{slug}/index.html'
