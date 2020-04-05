@@ -6,6 +6,10 @@ AUTHOR = 'Litchfield United Church of Christ'
 SITENAME = 'LitchfieldUCC'
 SITEURL = ''
 
+IGNORE_FILES = [
+    'raw-html',
+]
+
 PATH = 'content'
 
 TIMEZONE = 'America/New_York'
