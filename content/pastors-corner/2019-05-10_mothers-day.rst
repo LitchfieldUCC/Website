@@ -6,6 +6,7 @@ Mother’s Day
 :date: 2019-05-10
 
 .. image:: {static}./images/ann-reeves-jarvis-program-cover-wvrhc.jpg
+  :alt: Ann Maria Reeves Jarvis (1832-1905)
 
 Ann Maria Reeves Jarvis (1832-1905)
 
@@ -27,6 +28,7 @@ Blessings and Happy Mother’s Day!
 ‒ Pastor Jim
 
 .. image:: {static}./images/6607917_AnnMariaReevesJarvis.jpeg
+  :alt: Anna Jarvis (1864-1948)
 
 Anna Jarvis (1864-1948)
 

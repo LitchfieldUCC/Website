@@ -6,6 +6,7 @@ Change, Part 2
 :date: 2019-05-31
 
 .. image:: {static}./images/54213-primary-0-nativeres-day_and_night-mc_escher.jpg
+  :alt: “Day and Night” by M.C. Escher, 1937
 
 “Day and Night” by M.C. Escher, 1937; from the book Change by Paul Watzlawick & John Weakland, W.W. Norton, 1974.
 
