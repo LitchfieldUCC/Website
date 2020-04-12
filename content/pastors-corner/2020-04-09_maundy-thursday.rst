@@ -8,7 +8,7 @@ Maundy Thursday
 .. raw:: html
 
     <p>
-        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Maundy-Thursday-ecjgtj" height="102px" width="400px" frameborder="0" scrolling="no"></iframe>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Maundy-Thursday-ecjgtj" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
     </p>
 
 
