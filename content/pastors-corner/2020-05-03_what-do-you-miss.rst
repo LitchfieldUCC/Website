@@ -152,9 +152,13 @@ In this storm we are going through, faith gives us an anchor. Let’s not be sel
 Let us at this time prepare for our communion.
 
 The Great Thanksgiving Hear the Good News: In fulfilling God's covenant with Noah, Abraham, and all creation, Christ was born to seek the lost and to lift up the down-hearted. God assures us, by Jesus' testimony, that no matter who we are, all can know the wonderful blessings of God’s rich creation and have fulfillment in paradise. Glory to God. Amen.
+
 May God be with you. And also with you.
- Lift up your hearts.  We lift them up to God, the Lord of our lives.
- Let us give thanks to God for all of our rich blessings. It is a wonderful thing to offer our thanks to You, O Lord Almighty, creator of heaven and earth.  And so, we join others throughout the world and those who have come before us and all the company of heaven to praise You, saying: Holy, Holy, Holy! Lord God Almighty!
+
+Lift up your hearts.  We lift them up to God, the Lord of our lives.
+
+Let us give thanks to God for all of our rich blessings. It is a wonderful thing to offer our thanks to You, O Lord Almighty, creator of heaven and earth.  And so, we join others throughout the world and those who have come before us and all the company of heaven to praise You, saying: Holy, Holy, Holy! Lord God Almighty!
+
 Holy and sacred is your presence, dear God; and blessed are we to see Christ in our lives.  By his birth, sacrifice, and resurrection You gave birth to your church and brought us out of the depths of despair to a life of hope and promise. We remember that during that night when Jesus shared a last supper with his disciples where he gave of himself by giving thanks to You, breaking bread, and handing it to them; saying: “Take and eat; this is my body, which is for you.” Then Jesus took a cup, again giving thanks to You, and gave to them; saying: “This cup is God’s new covenant, sealed with my blood.” He told them to remember him whenever they eat and drink, for truly they had received him, body and soul, as a part of themselves. And so, in remembering Christ’s last supper and the Covenant, we offer our praise and thanksgiving as a living testimony and proclaim the mystery of faith: Christ came into our world, Christ overcame all difficulties, and in Christ we find our true home. Bless these elements of communion today.  As we receive them, may we also receive your Christ in our hearts.   Amen.
 
 Lord, as we take this bread, We remember that You are the bread of life.  You feed our souls, you nourish our hearts and You give us sustenance to run the race before us.  As we take this bread, we feel the softness of Your love for us, take and eat.
