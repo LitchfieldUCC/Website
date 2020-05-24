@@ -1,0 +1,199 @@
+The Importance of Prayer
+========================
+
+:author: Pastor Pam Hahn
+:category: Pastor's Corner
+:date: 2020-05-24
+
+.. raw:: html
+
+    <p>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Sunday-Sermon-The-Importance-of-Prayer-eeg0fd" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
+    </p>
+
+
+| After Jesus had spoken these words, he looked up to heaven and said, “Father, the hour has come; glorify your Son so that the Son may glorify you, 2 since you have given him authority over all people, to give eternal life to all whom you have given him. 3 And this is eternal life, that they may know you, the only true God, and Jesus Christ whom you have sent. 4 I glorified you on earth by finishing the work that you gave me to do. 5 So now, Father, glorify me in your own presence with the glory that I had in your presence before the world existed. 6 “I have made your name known to those whom you gave me from the world. They were yours, and you gave them to me, and they have kept your word. 7 Now they know that everything you have given me is from you; 8 for the words that you gave to me I have given to them, and they have received them and know in truth that I came from you; and they have believed that you sent me. 9 I am asking on their behalf; I am not asking on behalf of the world, but on behalf of those whom you gave me, because they are yours. 10 All mine are yours, and yours are mine; and I have been glorified in them. 11 And now I am no longer in the world, but they are in the world, and I am coming to you. Holy Father, protect them in your name that you have given me, so that they may be one, as we are one. 12 While I was with them, I protected them in your name that[b] you have given me. I guarded them, and not one of them was lost except the one destined to be lost,[c] so that the scripture might be fulfilled. 13 But now I am coming to you, and I speak these things in the world so that they may have my joy made complete in themselves. 14 I have given them your word, and the world has hated them because they do not belong to the world, just as I do not belong to the world. 15 I am not asking you to take them out of the world, but I ask you to protect them from the evil one. 16 They do not belong to the world, just as I do not belong to the world. 17 Sanctify them in the truth; your word is truth. 18 As you have sent me into the world, so I have sent them into the world. 19 And for their sakes I sanctify myself, so that they also may be sanctified in truth. 20 “I ask not only on behalf of these, but also on behalf of those who will believe in me through their word, 21 that they may all be one. As you, Father, are in me and I am in you, may they also be in us, so that the world may believe that you have sent me. 22 The glory that you have given me I have given them, so that they may be one, as we are one, 23 I in them and you in me, that they may become completely one, so that the world may know that you have sent me and have loved them even as you have loved me. 24 Father, I desire that those also, whom you have given me, may be with me where I am, to see my glory, which you have given me because you loved me before the foundation of the world. 25 “Righteous Father, the world does not know you, but I know you; and these know that you have sent me. 26 I made your name known to them, and I will make it known, so that the love with which you have loved me may be in them, and I in them.”
+| - John 17:1-26
+
+| "Rejoice in hope, be patient in suffering, persevere in prayer.."
+| - Romans 12:12
+
+Introduction:
+-------------
+
+A few thousand years ago a man appeared on this earth – He brought change to a depressed world – He instilled love – He gave hope in hopeless situations. He created and distributed a joy that has impacted billions of people – what He had was unique – the religious leaders did not have it – the Romans did not have it – but He had it and others wanted it. People today still want it – many are looking for it but it is only found in this person. He did remarkable miracles, He taught astonishing truths and He even healed the multitudes. He walked on water and even calmed raging storms. He set people free from demonic spirits. He had noble character yet was also associated with fisherman – he had personal charm and uttered such wise things people followed him by the thousands. He baffled the elite and appealed to the regular everyday people with His words. He loved the unlovable and He noticed the ignored and rejected of society.
+
+Many communicate about how special He was, many even do that today in our society – His name is spoken somewhere in the world every second.  He has been known to appear to people in dreams and visions - He has sent His Spirit to communicate His timeless message to our world today. Some hear it, others reject it, but it still presses forward. Many say He had a secret – but what was His secret? It was the secret which transformed the Roman Empire and many empires too. He was and is unique just look at how we measure time.
+
+Author Sherwood Eliot Wirt states, “The secret of Jesus was and is His inner joy.” Would you agree with his statement?
+
+The New Testament repeatedly reveals this secret about Jesus – He had inner joy like no other and it was expressed through His relationship with God the Father. This joy has spilled over into many other lives. His joy has a contagious element about it – but where did His inner joy come from?
+
+Think about this - He owned no material possessions, He had no home, He roamed the countryside and slept outdoors – no office to go to work in – no church building to worship in – He dealt with rude angry religious people every day who hated him – He faced off with demons and people needing healing daily. Yet He had an inner joy no one could quench! A joy that others wanted and sought after – where did His joy come from?
+
+It came from His relationship to God the Father through Prayer!
+
+His inner joy came from a healthy and whole soul – a soul connected to God the Father – a soul that desired to honor God and not please men. A soul that was radiant because of His consistent prayer life!
+
+On page 22 of Wirt’s book “Jesus Man of Joy” he states.  Yes, Jesus smiled; yes, Jesus laughed. Jesus smiled wider and laughed heartier than any human being who has ever walked the planet. He was young. He radiated good cheer. The real Jesus was a man of such merriment, such gladness of heart, such freedom and openness, that He proved irresistible. He became known through Galilee for His genuine strength, the sparkle in His eyes, the spring in His gait, the heartiness in His laugh, the genuineness of His touch, His passion, playfulness, excitement, and vitality: His Joy! He made a dazzling display of love. He set hearts afire. He was an elated, triumphant young man with an incredible quality of life…so different from the solemn religious types He constantly encountered”
+
+We know that Jesus spread His joy in many ways – He did it through worship, praise, prayer and service to others.
+
+Jesus in Luke 10:21 stated, “At that time Jesus, full of joy through the Holy Spirit, said, “I praise you Father.” He praised the father for using those who He sent out to minister to the people in need! They went out ministered to the people in need and returned filled with joy because lives were touched – their joy filled Jesus up with joy!
+
+Stop: Did you hear what I just said? “Their joy in serving and ministering to other people filled them with joy and Jesus with joy!” Joy is contagious – God wants to spread the joy!
+
+By the way this statement of Jesus is a prayer of praise to God the Father for using them in a miraculous way!
+
+Jesus was filled with joy – the New Testament makes this clear! He was not a grumpy old Christian! He was not self-centered. He was not like the religious leaders of the day – all about do’s and don’ts. He laughed and made people smile.
+
+He was filled with joy – I think one main reason He was filled with joy was His prayer life – Have I said that enough today? If you want to find joy in the journey then pray – prayer is a key to being filled with Joy! Joy inner joy is connected with God the Father and His son and the Holy Spirit – the venue of prayer connects us with all three of them! Jesus was connected to the Father and to the Holy Spirit – prayer was the link – prayer was the energizing beam of joy for Jesus in a world filled with death, disease, sickness, sin, pride, self-centeredness, hopelessness, oppression, bondage, demons and so on. Jesus still had joy as He confronted all these things daily in His day. We can have this same joy too.
+
+So, I want to establish a laser beam for you which links you with God the Father, the Son and the Holy Spirit so you can be filled with joy – that beam which you need to turn on is the key to having and keeping your inner joy even in the midst of trial, tribulations and hard times. That laser beam is prayer. We have learned how to turn this beam on briefly by looking at the life of Jesus but let’s look a little deeper into Jesus’ prayer life and discover more.
+
+QUESTION of the day: “Are you willing to ask Jesus today to help you connect and turn on the laser beam of prayer which leads to inner joy from Heaven?” The Bible says “Ask and you shall receive!” Have you asked?
+
+To learn how to pray and create inner joy we just need to look at how Jesus prayed?
+
+Have you ever studied Jesus' prayers? Seriously! Jesus did pray by the way – He prayed a lot in the Gospels! The Bible describes Jesus’ praying to His Father in Heaven on many different times and in many different situations. Jesus was a man of prayer!
+
+Let’s look at how and where Jesus prayed:
+
+There are three prayers of Jesus—one from the upper room as He was facing imminent death, one from the garden, where He was wrestling internally, and one from the cross, in the midst of His darkest hour these prayers show us His heart for us. They demonstrate His utter dependence on God, and His selflessness in being our ultimate example of obedience and oneness with His Heavenly Father.”
+
+Our scripture reading from John this morning was a prayer that  Jesus prayed at The Passover Service (the upper room) for Himself, for His disciples and for all believers
+
+Yes, Jesus would pray for himself – it's okay to do that by the way.
+
+He prayed that he would honor God with His life and sacrifice!
+
+He prayed to make a difference for the Kingdom of God!
+
+But --- Jesus also prayed for His disciples!
+
+He prayed, “Holy Father, protect them by the power of your name-the name you gave me-so that they may be one as we are one” (John 17:11).
+
+Jesus also prayed for all believers – really for you and I today too!
+
+He prayed, “My prayer is not for them alone. I pray also for those who will believe in me through their message, that all of them may be one, Father, just as you are in me and I am in you” (John 17:20-21).
+
+Jesus in His prayers prayed for the disciple’s and us, he prayed  for believers that they would have unity.
+
+On the night Jesus was arrested, He gathered with His followers in an upstairs room for dinner and expressed His heart’s desire for them in a prayer to His Father. In His prayer recorded in John 17, He asked for the protection of His followers, their unity with other believers, and that they would know intimacy with Him and one another as He knew intimacy with His Own Father.
+
+He prayed for protection for them and us!
+
+He prayed for unity!
+
+He prayed that we would be intimate with the Father!
+
+Wow – I know many people who pray for protection in fox holes – but I know few people who pray for unity and intimacy!
+
+In verse 11 Jesus prayed, “Holy Father, keep them in Your name, the name which You have given Me, that they may be one even as We are”  Later, in verses 20-21, it is clear he is praying for all followers of Him to be united like He was united with the Father. Jesus prayed: “I do not ask on behalf of these alone, but for those also who believe in Me through their word; that they may all be one; even as You, Father, are in Me and I in You, that they also may be in Us, so that the world may believe that You sent Me.”
+
+What love! As Jesus was preparing to go to Calvary, He had you and me on his mind and in His prayers.
+
+Amazing!  That kind of love is Amazing!
+
+Do you want to have the kind of close-knit relationship with God that Jesus had? Do you desire to be as united with other believers as Jesus was with His Father?  Jesus’ prayer tells us we were meant to experience that kind of fellowship and unity. It is one of the things He died for.
+
+Jesus prayed and also included praise to God in His prayers, He would praise the Father for what he was doing and going to do in His followers - Luke 10:21 reads  “At that time Jesus, full of joy through the Holy Spirit, said, ‘I praise you, Father, lord of heaven and earth, because you have hidden these things from the wise and learned, and revealed them to little children. Yes, Father, for this was your good pleasure’”
+
+Jesus prayed prayers of thanksgiving too in His prayers even at Passover knowing what was  in front of Him - “While they were eating, Jesus took bread, gave thanks and broke it, and gave it to his disciples, saying, ‘Take it; this is my body’” (Mark 14:22).
+
+Jesus prayed for Himself, for His Disciples and for all who would follow Him. He prayed for protection for us, for a heart of unity, and for us to have intimacy with the Father like He had. These types of prayer fueled Jesus to do what needed to be done and instilled in Him an inner joy and peace to pursue the course of God.
+
+Jesus also prayed for guidance and for the will of God in the quiet of the Garden!
+
+Jesus often prayed for guidance in places of quiet – it was a common practice of his - “Very early in the morning, while it was still dark, Jesus got up, left the house and went off to a solitary place, where he prayed” (Mark 1:35)
+
+Scripture also notes several passages about this frequent action of Jesus: “But Jesus often withdrew to lonely places and prayed” (Luke 5:16).
+
+When was the last time you prayed for guidance in your life?
+
+When was the last time you got away to pray in quiet?
+
+When was your last spiritual retreat?
+
+When was the last time you prayed about a decision you had to make?
+
+When was the last time you prayed that God would use you in your day?
+
+Mother Teresa said “I used to pray that God would feed the hungry, or do this or that, but now I pray that he will guide me to do whatever I'm supposed to do, what I can do. I used to pray for answers, but now I'm praying for strength. I used to believe that prayer changes things, but now I know that prayer changes us and we change things.”
+
+2. C.S. Lewis stated, “Prayer Changes Me
+
+Author CS Lewis the author of the widely read children’s books, The Narnia Chronicles, as well as many novels for grown-ups and books on issues surrounding the Christian faith stated “Prayer Changes Me” There is a movie title  Shadowlands it tells Lewis’ story, focusing in particular on his relationship with his wife, Joy Gresham. Gresham and Lewis meet while Lewis is a Don (Lecturer) at Oxford University. After Joy is diagnosed with cancer the couple marry. The movie invites us to witness their love, their pain, their grief, their struggles with faith and God. Eventually Joy dies. At one point in the story a friend says to Lewis, “Christopher can scoff, Jack, but I know how hard you’ve been praying; and now God is answering your prayers.” Lewis replies “That’s not why I pray, Harry. I pray because I can’t help myself. I pray because I’m helpless. I pray because the need flows out of me all the time, waking and sleeping. It doesn’t change God, it changes me.”
+
+In the same vein Jesus prayed for God’s will, even at His own expense in the Garden.
+
+Do you ever struggle with understanding God’s ways? Or do you get the idea, now and then, that Jesus didn’t know what it was like to be you? If you’re going through a difficult time, whatever it is, it’s safe to say Jesus dealt with feelings far more isolated and painful than you ever will.
+
+He was not only tortured and murdered for His relationship to God the Father and for being willing to be obedient to God, but He chose to walk toward it - willingly with the intention of obedience unto death.
+
+In Luke 22:42, Jesus showed His humanity more than at any other time, when He prayed in the Garden with literally blood, sweat and tears: “Father, if You are willing, remove this cup from Me; yet not My will, but Yours be done.”
+
+Jesus clearly wrestled with what would happen to Him in the next several hours and days and He wrestled with those thoughts alone, too. Three of His closest friends, whom He brought along with Him that evening for His prayer support, couldn’t stay awake to pray for Him a few yards away, even though He interrupted His prayer time twice to come back to the huddle and ask them to keep praying for Him.
+
+Jesus’ persistence in prayer, to the point of blood and sweat, shows us He wrestled with His imminent death. Yet, He ultimately wanted God’s way, not His.
+
+Jesus’ prayer was a beautiful example to us of His obedience unto death, as He sought God’s glory, regardless of what it meant to Him, personally. His struggle in prayer that night in the Garden is evidence that we have a High Priest who can sympathize with our weaknesses, our temptations and our struggles (Hebrews 4:15-16) and therefore, we can draw near to Him with confidence when we have a need.
+
+Jesus’ prayer in the Garden showed us that He, too, experienced all that we will experience when it comes to the trials of this life. He also showed us what it looked like to put aside His own comfort and convenience and very life and give Himself wholeheartedly and trustingly into the hands of His Father.
+
+Jesus prayed in a posture and with an attitude of reverent submission - “Going a little farther, he fell with his face to the ground and prayed, ‘My Father, if it is possible, may this cup be taken from me. Yet not as I will, but as you will’” (Matthew 26:39).
+
+Jesus prayed for God’s guidance and for God’s will and wrestled through prayer to be willing to follow the path God laid out for Him.
+
+Jesus prayed for the forgiveness of those who caused His suffering on the cross.
+
+Jesus uttered a powerful prayer from the cross that should give us perspective in times of suffering from the actions of others.
+
+In Luke 23:34, Jesus prayed: “Father, forgive them; for they do not know what they are doing.” Here, we see one of the most beautiful pictures of God’s grace when Jesus asked His Father to forgive the very people who were mocking him, spitting on him, and putting him to death.
+
+This prayer of Jesus’ not only epitomizes the calling in Matthew 5:44 to “love your enemies and pray for those who persecute you,” but it smashes our theories that we are only required to forgive someone who shows remorse for their actions and requests our forgiveness.
+
+Certainly, Jesus knew those who would eventually repent of what they had done that day. Perhaps some were among the 3,000 who were “pierced to the heart” 40 days later when Peter preached his sermon at Pentecost and informed them that “God has made Him both Lord and Christ – this Jesus whom you crucified” (Acts 2:36-42).”
+
+Regardless of the outcome, Jesus showed the perfect picture of unconditional grace when it was neither deserved nor requested and he did this because of his prayer life with God the Father.
+
+Jesus actually prayed for those who were causing His pain during His deepest hour of pain and suffering, and set a beautiful example to us to not only pray for those who persecute us, but to forgive them in the midst of the suffering they may be causing us.
+
+Do you do this?  Do you pray for those who hurt you, or do you wait until they show remorse?
+
+
+What do we need to know from this message on joy and prayer?
+
+That prayer brings to us an inner joy along with many other benefits too!
+
+Mike Bickle wrote in his book “Growing in Prayer” these benefits that come from prayer.
+
+1. It deepens our intimacy with God and leads to our transformation.
+
+2. It increases our understanding of situations in life.
+
+3. It releases God’s power to act on our requests.
+
+4. It unites us in community as it helps us express His love.
+
+5. It renews our faith.
+
+6. It multiplies His blessings.
+
+7. It releases our inheritance in Jesus and His promises.
+
+Prayer bestows within our soul joy that no man or spirit can ever steal away.
+
+Why do we need to know joy and prayer are connected?
+
+Because practicing prayer will change our inner soul and outlook on life!
+
+Clergyman and Author E. M. Bounds writes “Prayer should not be regarded as a duty which must be performed, but rather as a privilege to be enjoyed, a rare delight that is always revealing some new beauty.”
+
+Jesus was filled with joy and this inner joy came from His relationship with God the Father through prayer. Prayer and inner joy are linked together because prayer opens a door to the presence and guidance of the Lord.
+
+Do you need Joy? What do you need to do to get it?   Pray!  Create a relationship with God through prayer and Joy will follow.
+
+Amen!
+
+‒ Pastor Pam
