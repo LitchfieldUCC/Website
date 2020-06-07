@@ -12,6 +12,7 @@ ghp-import = "*"
 [dev-packages]
 pylint = "*"
 bandit = "*"
+rstcheck = "*"
 
 [requires]
 python_version = "3.7.3"
