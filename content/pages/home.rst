@@ -3,17 +3,21 @@ Welcome to Litchfield United Church of Christ
 
 :save_as: index.html
 
-Due to COVID-19 and for the safety of our congregation, families, and community, Litchfield UCC will suspend all services and activities (including our Clothing Closet) until further notice. We will continue to evaluate the situation and let everyone know as soon as we can safely resume normal operation. Thank you for your understanding, please stay safe and we will continue to pray for all.
+.. Due to COVID-19 and for the safety of our congregation, families, and community, Litchfield UCC will suspend all services and activities (including our Clothing Closet) until further notice. We will continue to evaluate the situation and let everyone know as soon as we can safely resume normal operation. Thank you for your understanding, please stay safe and we will continue to pray for all.
 
-**- The Litchfield UCC Council**
+.. **- The Litchfield UCC Council**
 
 We are now publishing our Sunday Sermons from Pastor Pam Hahn as a `podcast </podcast>`_.
 
 Our Sunday Service starts at 10:00 am every Sunday.
 
-We host Communion on the first Sunday of every Month.
+.. We host Communion on the first Sunday of every Month.
+
+Communion is not hosted at this time.
 
 All are Welcome to attend.
+
+Please read our `reopening guidelines </reopening-guidelines>`_ if you wish to attend Sunday Service.
 
 Take a look at the `calendar </calendar>`_ for other events.
 
