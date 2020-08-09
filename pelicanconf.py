@@ -50,6 +50,7 @@ STATIC_PATHS = [
 EXTRA_PATH_METADATA = {
     'extra/CNAME' : {'path': 'CNAME'},
     'extra/pastors-corner.html' : {'path': 'pastors-corner.html'},
+    'extra/pastors-corner-index.html' : {'path': 'pastors-corner/index.html'},
 }
 PLUGIN_PATHS = [
     f'{THEME}plugins/',
