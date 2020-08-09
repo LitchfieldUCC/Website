@@ -35,14 +35,21 @@ MENUITEMS = (
     ('Calendar', '/calendar'),
     ('Podcast', '/podcast'),
 )
+PAGE_EXCLUDES = [
+    'extra',
+]
 ARTICLE_URL     = '{category}/{date:%Y}/{date:%m}/{date:%d}/{slug}/'
 ARTICLE_SAVE_AS = '{category}/{date:%Y}/{date:%m}/{date:%d}/{slug}/index.html'
+ARTICLE_EXCLUDES = [
+    'extra',
+]
 STATIC_PATHS = [
     'pastors-corner/images',
-    'extra/CNAME',
+    'extra',
 ]
 EXTRA_PATH_METADATA = {
     'extra/CNAME' : {'path': 'CNAME'},
+    'extra/pastors-corner.html' : {'path': 'pastors-corner.html'},
 }
 PLUGIN_PATHS = [
     f'{THEME}plugins/',
