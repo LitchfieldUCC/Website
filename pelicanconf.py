@@ -32,7 +32,6 @@ THEME = '../LitchfieldUCC-BrutalistUCC-PelicanTheme/'
 DISPLAY_PAGES_ON_MENU = False
 MENUITEMS = (
     ('About Our Church', '/about'),
-    ('Calendar', '/calendar'),
     ('Podcast', '/podcast'),
 )
 PAGE_EXCLUDES = [
@@ -57,6 +56,6 @@ PLUGIN_PATHS = [
     '../Pelican-Plugins/',
 ]
 PLUGINS = [
-    'ical',
+#     'ical',
     'calendar_event_support'
 ]

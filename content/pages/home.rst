@@ -19,8 +19,6 @@ All are Welcome to attend.
 
 Please read our `reopening guidelines </reopening-guidelines>`_ if you wish to attend Sunday Service.
 
-Take a look at the `calendar </calendar>`_ for other events.
-
 The Church is located at:
 
 | 3928 Avon Lake Road
