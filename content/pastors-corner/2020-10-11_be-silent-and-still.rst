@@ -1,5 +1,5 @@
-How Do We Pray
-==============
+Be Silent and Still
+===================
 
 :author: Pastor Pam Hahn
 :category: Pastor's Corner
