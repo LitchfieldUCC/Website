@@ -3,21 +3,27 @@ Welcome to Litchfield United Church of Christ
 
 :save_as: index.html
 
+Due to Medina County’s stay at home order and UCC conference recommendations our in person worship services are suspended until further notice. This is for the health and safety of our congregation, their families, and our community.
+
+Weekly `podcasts </podcast>`_ will continue to be posted on the website and soon we will live stream our Sunday morning worship service.
+
 .. Due to COVID-19 and for the safety of our congregation, families, and community, Litchfield UCC will suspend all services and activities (including our Clothing Closet) until further notice. We will continue to evaluate the situation and let everyone know as soon as we can safely resume normal operation. Thank you for your understanding, please stay safe and we will continue to pray for all.
 
 .. **- The Litchfield UCC Council**
 
-We are now publishing our Sunday Sermons from Pastor Pam Hahn as a `podcast </podcast>`_.
+.. We are now publishing our Sunday Sermons from Pastor Pam Hahn as a `podcast </podcast>`_.
 
-Our Sunday Service starts at 10:00 am every Sunday.
+.. Our Sunday Service starts at 10:00 am every Sunday.
 
 .. We host Communion on the first Sunday of every Month.
 
 Communion is not hosted at this time.
 
-All are Welcome to attend.
+Thank you for understanding and please stay safe.
 
-Please read our `reopening guidelines </reopening-guidelines>`_ if you wish to attend Sunday Service.
+.. All are Welcome to attend.
+
+.. Please read our `reopening guidelines </reopening-guidelines>`_ if you wish to attend Sunday Service.
 
 The Church is located at:
 
