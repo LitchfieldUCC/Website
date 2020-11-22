@@ -1,0 +1,118 @@
+Spilling Over with Thanksgiving
+===============================
+
+:author: Pastor Pam Hahn
+:category: Pastor's Corner
+:date: 2020-11-22
+
+.. raw:: html
+
+    <p>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Sunday-Sermon-Spilling-Over-with-Thanksgiving-emr4a9" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
+    </p>
+
+| 6 As you therefore have received Christ Jesus the Lord, continue to live your lives in him, 
+| 7 rooted and built up in him and established in the faith, just as you were taught, abounding in thanksgiving.
+| Colossians 2:6-7 (NRSV)
+
+**Let us Pray:** “Lord Jesus, we admit we have been on the fence for you. ... Please live your life through us - and please keep us off the fence. Help us to be “full on and full out” Thank you for hearing my prayers as you promised. Amen.
+
+
+Today is Thanksgiving Sunday – Today let’s reflect on ways to show our gratitude to God for all that we are given.
+
+
+Back during the dark days of 1929, a group of ministers in the Northeast gathered to discuss how they should conduct their Thanksgiving Sunday services. Things were about as bad as they could get, with no sign of relief. The bread lines were depressingly long, the stock market had plummeted, and the term Great Depression seemed an apt description for the mood of the country. The ministers thought they should only lightly touch upon the subject of Thanksgiving in deference to the human misery all about them. After all, what was there to be thankful for? But one pastor rallied the group. This was not the time, he suggested, to give mere passing mention to Thanksgiving, but just the opposite. This was the time for the nation to get matters in perspective and thank God for blessings always present, but perhaps suppressed due to intense hardship. 
+
+-This pastor was onto something. The most intense moments of thankfulness are not found in times of plenty, but when difficulties abound. Think of the Pilgrims that first Thanksgiving. With half of their number dead, they were people without a country, but still they were grateful to God. Their gratitude was not for something but in something. It was that same sense of gratitude that led Abraham Lincoln in 1863 to formally establish the first Thanksgiving Day in the midst of national civil war, when the list of casualties seemed to have no end and the very nation struggled for survival. 
+
+Right now, in our country we are facing our own hardships our own “Great Depression” or our own “Civil War”.  We are faced with a pandemic, unrest in our country, racial tensions, separations of families, hatred and anger or maybe there is something going on in your life that is causing you distress.  So many things that are happening that might make us say, why should we be thankful on this day? Well, among other reasons, we must learn to be thankful or we become bitter. We must learn to be thankful or we will become discouraged. We must learn to be thankful or we will grow arrogant and self-satisfied. In Rom. 1, Paul describes man’s downward fall away from God. One of the problems he listed was that they knew about God, but they were not thankful. We must do better than that! We can learn to express thanks to God regardless of the circumstances. Our hearts should overflow with gratitude to the One who made us and knows us by name. Psalms 100 gives us some great guidelines on how to give thanks to God. Let’s look at it together.   Psalms 100 is actually titled “A Psalm of Thanksgiving”
+
+**A Psalm of thanksgiving.** 
+
+| 1 Make a joyful noise to the Lord, all the earth. 
+| 2 Worship the Lord with gladness; come into his presence with singing. 
+| 3 Know that the Lord is God.  It is he that made us, and we are his, we are his people, and the sheep of his pasture. 
+| 4 Enter his gates with thanksgiving, and his courts with praise. Give thanks to him, bless his name. 
+| 5 For the Lord is good; his steadfast love endures forever, and his faithfulness to all generations.
+
+The life of every Christian should overflow with thanksgiving, regardless of the circumstances of life.   How is this possible? 
+
+Let’s talk about that and what it means to overflow or spill over with thanks as we look more closely at the 100th Psalm. 
+
+We need to have a Willing Expressions of Gratitude To Shout for Joy
+
+What is it about shouting that appeals to children? As parents, we spend a lot of time teaching our kids to sit down and be quiet. However, the Bible says an awful lot about standing up and shouting out loud. Now I know that there is a right time for everything, but perhaps we need to reconsider what is appropriate in our expressions of praise and thanks to God. The biggest question should not necessarily be, “What makes me feel the most comfortable?” The question should be, “What will please God the most?” Now, the volume of sound alone is not what impresses God. God is concerned with the volume of the heart. When you thank God for what He has done and praise Him for who He is, how much of your heart do you use to express that praise? If we only thank God when we remember to pray before our meals, then it is possible that we are not using much of the volume of our heart. Paul told the Thessalonians to give thanks in every circumstance, because this was God’s will for them. To overflow with thankfulness means to thank God with all of our hearts every chance we get. 
+
+Now you might feel a little shy or embarrassed about shouting, whether it is to God or to other people. It is one thing to shout during a football game, or to holler at someone across the street. But when it comes to worship, we get this idea that quiet is holy, and loud is offensive and distracting. I don’t generally stand up her and shout and sing, I don’t know many people in this church that do that during a sermon or during the music.  Most people prefer to be quiet. However, there is a side of me that would like to just forget about what everyone else thinks, and bust out with a shout of praise. I might even want to jump around a little bit at times. My point is that God deserves the best praise and thanks that we can give Him. Here’s a thought: If you are not comfortable shouting for joy in front of other people, then sometime during this next week, find a setting where you can shout at the top of your lungs. It may be in your car, it may be out in the woods, it may be in your shower (although you should probably warn other people in your house ahead of time). But begin to celebrate God and what He has done for you. Thank Him for forgiving you. Thank Him for providing all that you need. And use whatever words you might normally use when you are really happy about something (Hooray! Hallelujah! Yeah, God! Thank you, Lord!), just shout those words out to God. You may feel kind of silly, but shouting is one way of expressing our heartfelt thanks to God for all He has done. When our favorite team scores a touchdown, we celebrate. When a hunter or fisherman connects with that perfect buck or fish they celebrate! It shouldn’t be too much to celebrate with joy over how much God loves us and takes care of us. The following expressions of thanks and praise are similar. 
+
+Worship with gladness!  Again, there are times of somber, serious worship, but there should also be times of gladness, when we just enjoy being who we are in God’s presence. It is okay to be happy! Learn to celebrate God’s goodness! 
+
+Come before Him with joyful songs!  Do you ever just feel like singing happy songs? Do you find yourself whistling happy tunes throughout the day? These can be small expressions of thankfulness to God.  God enjoys hearing joyful songs of praise and thanksgiving from His people. Rather than being overly concerned about what we do or don’t want to do, we should consider what God wants. Let’s be willing to make some changes in our personal interaction with God.  The Lord is worthy of the best expressions of praise that we can give Him. 
+
+Next, our thanks to God flows from who He is and our relationship to Him – we need to get the right perspective.
+
+Recognize who He is “Know that the LORD is God.” Yahweh is the one true living God. There is no other God besides Him. He alone is divine. He alone is all-powerful. He alone loves us unconditionally and completely. The LORD is worthy to receive our praise, overflowing thanks, and worship. 
+
+It is not enough just to know about Him. In fact, it is not enough just to know that God loved us so much that He sent His Son Jesus to die for our sins. Just knowing that there is a God who loves us will not change our lives. However, when we invite this God who loves us into our lives and ask Him to forgive us, then we begin to know Him in a real and personal way. When we come to know that He is God through personal experience, then we will be able to overflow with thanksgiving to Him. We will be grateful to Him for forgiveness and cleansing, and so much more. Know that the Lord, He is God! 
+
+ Acknowledge Him as Creator “It is he who made us.” We do not belong to ourselves. We belong to the One who created us. If He made us, then He has every right to ask for our obedience and love. 
+
+This is where some people get confused. We owe God our lives. We owe Him our love and obedience. However, love can never be accepted unless it is freely given. If we tried to love God just because we knew we were obligated to, that wouldn’t be much of a relationship. If we told our children they have to love us just because we are their parents, that would not work. Why? Because love has to pass through the will of a person. Unless it is given willingly, it is not love. So, even though we owe our love to God, He only wants it when it is given willingly. However, if we make any effort at all to get to know God, then it will not be difficult to love Him. To know Him is to love Him. We owe our lives to God, and we willingly give ourselves to Him. As our powerful Creator, He can take care of us. 
+
+We need to recognize who we are and to whom we belong “He made us, and we are his; we are his people, the sheep of his pasture.” We belong to God. Our hearts will only find rest in Him, our Maker. The Psalmist reminds us that the Lord is our shepherd. We are His sheep. He leads us, guards us, gives us rest and nourishment, He restores our soul, He is with us through the dark valley of death. He comforts us. We are His sheep. We belong to Him and are in good hands. That should be enough to make us want to thank Him. He takes care of His own. 
+
+ The perspective of knowing who He is and who we are in Him should help us be thankful. In fact, it should affect the very way we approach Him. 
+
+We should approach Him with thankful hearts.
+
+-Two Hebrew words are rendered “thanksgiving” and “thankful” in Psalm 100. The first one says to “enter His gates with thanksgiving.” This comes from the word todah. It refers to a sacrifice of thanksgiving or praise, or a song of thanksgiving or praise. This is how we are to enter into God’s presence, thanking Him with words, songs, and anything else we can to let Him know we appreciate Him for who He is and what He has done for us. The second phrase says, “Be thankful to Him.” This comes from the word, yada. This is a poetic play on words. The word Judah means praise. The people of Judah, or those who worshiped in Jerusalem, where God caused His name to dwell, were to be people of praise. The Hebrew word for Judah is yahuda. When you abbreviate it, you come up with yada, which essentially means to praise or to give thanks. 
+
+As the people of God, we are to approach Him with thankful hearts, showing appreciation for who He is, and thanking Him for all the wonderful things He has done.
+
+We are to Praise and bless Him as we draw near to Him  
+
+-The word for praise in v.4 is tehillah. This is a song of praise, which is struck up by a person. The setting here is probably a group of worshipers who are going up to the temple together to offer thanks to God. Out of a heart of thanksgiving and praise, someone strikes up a song of praise to the Lord, as they walk through the courts of the temple, everyone else joins in and sings this song of praise to the Lord for His goodness and love. 
+
+Does your life strike up a song of praise to the Lord that causes others to join in and sing along? If you tend to dwell on the negative side of everything and are concerned primarily with how others have wronged you or mistreated you, you probably won’t provoke a song of praise in those around you. In fact, you may cause everyone around you to start singing the blues, as you spill all your negativity out on them. 
+
+We have so much to be thankful for – so much to praise the Lord for! Are we thankful? Do we have a heart full of praise – even in the midst of difficult circumstances? If we apply the temple analogy to our everyday lives, we have to conclude that there is never a time that we are not in God’s presence. Individually, our bodies are temples of the Holy Spirit. Collectively, we as part of the body of Christ are a temple of the living God. Therefore, thanks and praise should always be in our hearts and on our lips, as we recognize God in every area of our lives. 
+
+The word bless is baruch. It means to bless God as our source of strength and power. If you are weak and have no strength of your own, then get close to God. Thank Him and bless Him because He is your strength. He is your source! 
+
+Often, we are so eager to be blessed by God that we forget to bless Him. We bless Him by expressing our praise and thanks to Him with words and songs. God may put songs in your heart that are only between Him and you. Sing those songs to Him. They will bless Him. 
+
+Finally, let’s look at the reasons we have to be thankful. There are many more than are listed here, but these are foundational to having an attitude of gratitude. 
+
+We need to Find the Proper Motivation 
+
+The Lord is good (5) Some people have trouble believing that God is really a good God. They might say, “If God is good, then why does He allow so much bad to happen in His world?” Well, that is a good question that needs an answer. I don’t have the time in this sermon to go very deep, but I can say this much. The first man and woman chose to disobey God and introduced sin and death into the world. However, the blame does not lie with them only. Isaiah 53 says “All we like sheep have gone astray. We have turned every man to his own way. And the Lord has laid on Him (the Messiah, the suffering Servant) the iniquity of us all.” The Bible also says that the Lord looked down from heaven to see if there was anyone who was righteous, and He found none. Why? Because nobody can be righteous without the Lord’s help. We have all gone astray. But God, in His goodness, sent us a Savior, Jesus. The Christmas story tells us that He would be called Jesus, because He would save the world from its sin. The name of Jesus in Hebrew is Yeshua, which means “Yahweh is salvation.” That is good news. We can be forgiven and have eternal life. However, we still live in a fallen world where there will be pain and misery because of sin. No human is exempt from suffering, although the Lord has given us many blessings in this life (healing, deliverance, freedom, etc.). 
+
+The point in all this is to show that God is good! He is patient and kind, wanting all of us to come to Him for forgiveness & eternal life. This should motivate us to be grateful. What else should make us thankful? 
+
+His love will never fail (5) His love endures forever. God will never stop loving us. How do we know that?
+
+Because it is His nature to love, and His nature never changes. God does not change, because He is already perfect. If He were to change, then it would show that He was less than perfect. His love goes on and on forever and ever. The apostle Paul wrote an entire chapter about love in 1 Cor. 13. He was writing about the kind of love Christians should have. In doing so, He was describing the kind of love that flows from God’s nature. In v.8, Paul says that love never fails. Other things will fail, and people will fail, but God’s love never fails. We can count on God’s love. Therefore, our own hearts should respond by overflowing with thankfulness and love back to God. Well, not only is God’s love going to last forever, but let’s look at this last motivator: 
+
+He will always be faithful (5) “His faithfulness continues through all generations.” God will always be faithful. He can be trusted. He will never give up on us – even if we are tempted to give up on ourselves. He will see us through, no matter what we are facing. He will never let us down. 
+
+So, knowing that the Lord is good, and that His love will never fail, and that He will never give up on us, but will always be true to His word to be with us – these things give us reason enough to be thankful. These provide a foundation for an attitude of gratitude. We know where our help comes from. It comes from the Lord, Maker of heaven and earth. 
+
+In 1883, It is said that in New England the Sun didn't rise! The people awoke to an eerie darkness. They went outside to do their chores in stony silence. No rooster crowed, no birds sang, none of the usual sounds of a new day were heard. At the very start, people began to gather in small groups to question what was happening, to wonder and discuss what was taking place. Slowly, people began to make their way to the Churches. They say that by twelve noon every Church in New England was filled to overflowing with people on their knees crying out to God. There were cries for mercy, people begging for forgiveness and others confessing their sins. They say that there were few people who didn't pray the day the sun didn't rise. The Churches were full late into the night. 
+
+As the next morning neared, great crowds began to gather on the hilltops and the high places near their homes and churches. People were staring toward the eastern horizon. Every eye was fixed on that point where the sky touched the land. Every eye watching, hoping to catch a glimmer of the first rays of the sun. As the sun began to come up over the horizon, people began to shout and yell praise to God. They clapped, danced and rejoiced because the Sun was shining on the land again. As if in one voice, they began to praise the Lord for the sunlight, the warmth and the joy of God's new day. 
+
+They had no idea that on the Island nation of Indonesia, the sleeping giant of a volcano, Krakatoa, had come to life. They had no idea that this great mountain had exploded and had sent a huge cloud of dust and ash into the upper atmosphere. This black cloud would be carried around the world by the jet stream. It was said to cover whole regions, covering the sky from horizon to horizon. Few people had any idea that a volcano, half way around the world, could create such a cloud that could block out the Sun. Yet for most of those people that was the very first time they ever thanked God for the warmth and wonder of the Sun. 
+
+How are you doing in the area of gratitude? Are you a thankful person? Do you regularly stop and thank God for who He is and for what He has done? Do you thank Him for the dark days and the sunny days? The dark days should help us appreciate the bright ones even more. Do you express your praise and thanks to Him in a way that reflects all that is in your heart, regardless of the circumstances?
+
+Maybe today you aren’t really sure that you know who God is. If you do not have a personal relationship with God through Jesus Christ, today can be the first day of your new life with Him. The Bible says that everyone who calls on the name of the Lord will be saved. You can be forgiven and have a relationship with the living God, if you are willing to ask Him for it. He loves you. He is a good God. He has not and will not give up on you. If you are ready to start a relationship with Him today, let him know. He would love to hear from you.
+
+As Christians, we belong to the Lord. We are His people, the sheep of His pasture. Let’s overflow with thankfulness, as we consider the difference the Lord has made in our lives. Where would we be without Him? 
+
+Let’s take a few moments and thank Him.  Thank Him for the cross. Thank Him for forgiveness. Thank Him for His provision in your life. Thank Him for His presence – He is always with you. 
+
+As we close, let’s remember again what an overflow of thankfulness is all about. It may involve any number of expressions: joyful shouts, happy songs, glad worship. The proper perspective is to know that the Lord is the only true God, and that we belong to Him, along with all that we have. We should approach Him with thankful hearts full of praise, blessing His name. Finally, our motivation should stem from the fact that God is good, His love never stops, and He can always be trusted.
+
+Amen.
+
+‒ Pastor Pam
