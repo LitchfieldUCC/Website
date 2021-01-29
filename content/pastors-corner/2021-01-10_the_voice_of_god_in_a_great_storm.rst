@@ -15,11 +15,15 @@ The Voice of God in a Great Storm
 Psalm 29 – A Psalm of David titled The Voice of God in A Great Storm
 
 Ascribe to the Lord, O heavenly beings, ascribe to the Lord glory and strength.2 Ascribe to the Lord the glory of his name; worship the Lord in holy splendor.
-3 The voice of the Lord is over the waters; the God of glory thunders, the Lord, over mighty waters. 4 The voice of the Lord is powerful; the voice of the Lord is full of majesty. 5 The voice of the Lord breaks the cedars; the Lord breaks the cedars of Lebanon. 6 He makes Lebanon skip like a calf, and Sirion like a young wild ox. 7 The voice of the Lord flashes forth flames of fire. 8 The voice of the Lord shakes the wilderness; the Lord shakes the wilderness of Kadesh. 9 The voice of the Lord causes the oaks to whirl, and strips the forest bare; and in his temple all say, “Glory!” 10 The Lord sits enthroned over the flood; the Lord sits enthroned as king forever. 11 May the Lord give strength to his people!  May the Lord bless his people with peace!
-Prayer: Loving Father, there are so many examples of Your great glory and majesty – and yet You are interested in us, Your children. Help us tune our ears to hear Your voice, that we may live humbly and walk wisely before You, in spirit and truth. In Jesus' name AMEN.
 
- An elderly gentlemen went in for his annual physical exam.   The doctor said, "You're in incredible shape. How old are you again?"  The man replied, "I am 84." The doctor exclaimed,
+3 The voice of the Lord is over the waters; the God of glory thunders, the Lord, over mighty waters. 4 The voice of the Lord is powerful; the voice of the Lord is full of majesty. 5 The voice of the Lord breaks the cedars; the Lord breaks the cedars of Lebanon. 6 He makes Lebanon skip like a calf, and Sirion like a young wild ox. 7 The voice of the Lord flashes forth flames of fire. 8 The voice of the Lord shakes the wilderness; the Lord shakes the wilderness of Kadesh. 9 The voice of the Lord causes the oaks to whirl, and strips the forest bare; and in his temple all say, “Glory!” 10 The Lord sits enthroned over the flood; the Lord sits enthroned as king forever. 11 May the Lord give strength to his people!  May the Lord bless his people with peace!
+
+**Prayer:** Loving Father, there are so many examples of Your great glory and majesty – and yet You are interested in us, Your children. Help us tune our ears to hear Your voice, that we may live humbly and walk wisely before You, in spirit and truth. In Jesus' name AMEN.
+
+An elderly gentlemen went in for his annual physical exam.   The doctor said, "You're in incredible shape. How old are you again?"  The man replied, "I am 84." The doctor exclaimed,
+
 "Wow, 84. How do you stay so healthy? You look like a 60 year old." So, the man explained, "Well, my wife and I made a pact when we got married;  That whenever she got mad she would go into the kitchen and cool off;  And I would go outside and take a walk round the block!”
+
 So, the doctor asked: "What does that have to do with it?"  The man sighed, "Well, I guess I've lived an outdoor life."
 
 David the writer of this Psalm;  Was a man who “lived an outdoor life!" He was an outdoorsman who appreciated nature;  And the open-air lifestyle he lived helped him to appreciate his creator.  It may well be that David was out in the countryside;  When he was caught up in a ferocious storm.
@@ -32,14 +36,14 @@ Notice that David’s thoughts did not turn to fear… but to faith. He looked b
 
 In verses 1 and 2 he hears God’s Powerful Voice.  He doesn’t hear the thunderstorm, he doesn’t panic.  He says:
 
-“Ascribe to the LORD, O heavenly beings, ascribe to the LORD glory and strength.
-2 Ascribe to the LORD the glory of his name; worship the LORD in holy splendor”.
+| “Ascribe to the LORD, O heavenly beings, ascribe to the LORD glory and strength.
+| 2 Ascribe to the LORD the glory of his name; worship the LORD in holy splendor”.
 
 Reminding us in storms we do not need to be afraid.
 
 There is a great Peanuts cartoon from Charles Schultz where Charlie Brown says:
 
- "Sometimes I lie awake at night, and I ask, ’Where have I gone wrong?’ Then a voice says to me, ’This is going to take more than one night.’"
+"Sometimes I lie awake at night, and I ask, ’Where have I gone wrong?’ Then a voice says to me, ’This is going to take more than one night.’"
 
 In this psalm David talks about the voice of the Lord; In fact, that phrase; “The voice of the Lord” occurs seven times;
 
@@ -154,6 +158,7 @@ So, in verse 2 David encourages the angelic beings (and us) to: Worship God for 
 Before the days of modern navigational aids; Travelers crossing the Atlantic had their boats equipped with two compasses.  One was fixed to the deck where the man at the wheel could see it. The other compass was fastened up on one of the masts, And often a sailor would be seen climbing up to inspect it.  One day a passenger asked the captain: “Why do you have two compasses?” The captain replied: “This is an iron vessel, and the compass on the deck is often affected by its surroundings. Such is not the case with the compass at the masthead; That one is above the influence. We steer by the compass above.”
 
 I think the psalmist is echoing that idea; With human eyes tainted by sin our worship is flawed.
+
 So, in verse 2 we are encouraged to join with the angelic beings above; And to steer, to look, to worship from that perspective: To: “Worship the Lord in holy splendor.”
 
 In verses 3-9 we see God’s Power in Action 
@@ -180,6 +185,7 @@ Before coming ashore in full fury.  It reads “The voice of the Lord is over th
 Part 2: verses 5-7: The storm strikes; it reads “The voice of the Lord breaks the cedars; the Lord breaks the cedars of Lebanon.  He makes Lebanon skip like a calf, and Sirion like a young wild ox.  The voice of the Lord flashes forth flames of fire.”
 
 The Lebanon range was about 10,000 feet above sea level; And the Canaanites believed it was the home of their gods.  It was famous for its cedar forests which were the grandest of forest trees; The great cedars of Lebanon were an important symbol of strength in the ancient world.
+
 But the thunder of God broke even those mature strong trees.
 
 I like the poetic language he uses; These mature strong trees ‘skip like a little calf’ at the sound of thunder.  I think many of us do that when we hear a loud clap of thunder.
@@ -189,6 +195,7 @@ Part 3: verses 8-9:
 “The voice of the Lord shakes the wilderness; the lord shake the wilderness of Kadesh.  The voice of the Lord causes the oaks to whirls, and strips the forest bare; and in his temple all say, “Glory!”
 
 These verses tell us that at Sirion the storm changes direction and moves south; It travels two hundred miles down to Kadesh in the southern desert country. And there it dispersed.
+
 But before it disperses it again wreaks its havoc.
 
 Even the mighty oak tree lays twisted on the ground;  As if it was a discarded piece of paper.
@@ -202,7 +209,9 @@ Christian Singer Chris Tomlin’s song Indescribable reminds me of Psalm 29
 “From the highest of heights to the depths of the sea Creation's revealing Your majesty from the colors of fall to the fragrance of spring.
 
 Every creature unique in the song that it sings all exclaiming indescribable, uncontainable,
+
 You placed the stars in the sky, and You know them by name. You are amazing God all powerful, untamable, awestruck we fall to our knees as we humbly proclaim You are amazing God who has told every lightning bolt where it should go or seen heavenly storehouses laden with snow
+
 who imagined the sun and gives source to its light yet conceals it to bring us the coolness of night. You see the depths of my heart and You love me the same You are amazing God
 
 This brings us to vs 10-11 God’s Power Enthroned
@@ -210,6 +219,7 @@ This brings us to vs 10-11 God’s Power Enthroned
 “The LORD sits enthroned over the flood; the Lord sits enthroned as king forever.  May the Lord give strength to his people! May the Lord bless his people with peace!
 
 The earth and the people have been shaken up especially this past year.  It has been traumatic on earth; All around is the evidence of that in the aftermath of storm damage. But in contrast to earth – heaven is calm!  God has not been shaken up, he has not been fearful or panicking.
+
 So, David draws our attention to a God who is enthroned. He is the one in total control; Nature is his tool and not his master. The psalmist knows that God has more than enough power to control the elements;
 
 Note: 18 times in these 11 verses, the title used for God is “Lord”; And that means he is Lord of heaven and earth, Lord of all! So, this Psalm concludes with God blessing his people: It is a twofold blessing: God gives to us “strength” and he gives to us “peace”. Strength to cope in the storms of life; His peace is our legacy - when after the storm the calm appears.
