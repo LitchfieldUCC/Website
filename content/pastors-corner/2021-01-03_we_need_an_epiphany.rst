@@ -8,7 +8,7 @@ We Need an Epiphany
 .. raw:: html
 
     <p>
-        <iframe src="https://anchor.fm/litchfield-ucc/episodes/Sunday-Sermon-We-Need-an-Epiphany-eog054" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Sunday-Sermon-We-Need-an-Epiphany-eog054" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
     </p>
 
 | 3 

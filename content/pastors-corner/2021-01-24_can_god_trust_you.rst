@@ -8,7 +8,7 @@ Can God Trust You?
 .. raw:: html
 
     <p>
-        <iframe src="https://anchor.fm/litchfield-ucc/episodes/Sunday-Sermon-Can-God-Trust-You-epb1n8" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Sunday-Sermon-Can-God-Trust-You-epb1n8" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
     </p>
 
 Scriptures: Psalm 62:5-12; 

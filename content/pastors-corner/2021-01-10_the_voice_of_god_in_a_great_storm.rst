@@ -8,7 +8,7 @@ The Voice of God in a Great Storm
 .. raw:: html
 
     <p>
-        <iframe src="https://anchor.fm/litchfield-ucc/episodes/Sunday-Sermon-The-Voice-of-God-in-a-Great-Storm-eoogtl" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Sunday-Sermon-The-Voice-of-God-in-a-Great-Storm-eoogtl" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
     </p>
 
 

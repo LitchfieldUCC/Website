@@ -8,7 +8,7 @@ Being Known and Loved
 .. raw:: html
 
     <p>
-        <iframe src="https://anchor.fm/litchfield-ucc/episodes/Sunday-Sermon-Being-Known-and-Loved-ep0s4j" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
+        <iframe src="https://anchor.fm/litchfield-ucc/embed/episodes/Sunday-Sermon-Being-Known-and-Loved-ep0s4j" height="102px" width="100%" frameborder="0" scrolling="no"></iframe>
     </p>
 
 
