@@ -1,7 +1,7 @@
-Children's Story for 2021 Feb 21st
-==================================
+A Story of Snow and Lent
+========================
 
-:author: Melanie Schank
+:author: Natalie Schank
 :category: Kids Corner
 :date: 2021-02-21
 :list_content: <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/A1uWRfqYhVY" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
