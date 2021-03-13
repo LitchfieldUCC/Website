@@ -11,6 +11,12 @@ jobs:
     steps:
     - name: Checkout code
       uses: actions/checkout@v2
+      with:
+        lfs: true
+
+    - name: Checkout lfs objects
+      run: |
+        git lfs checkout
 
     - name: Set variables
       run: |
@@ -31,6 +37,13 @@ jobs:
       with:
         repository: LitchfieldUCC/BrutalistUCC-PelicanTheme
         path: theme
+        lfs: true
+
+    - name: Checkout theme lfs objects
+      run: |
+        pushd theme
+        git lfs checkout
+        popd 2>&1 >/dev/null
 
     - name: Build and publish
       run: |
