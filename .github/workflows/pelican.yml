@@ -26,8 +26,16 @@ jobs:
         python -m pip install --upgrade pipenv
         pipenv sync
 
-    - name: Build the prod site
+    - name: Checkout theme
+      uses: actions/checkout@v2
+      with:
+        repository: LitchfieldUCC/BrutalistUCC-PelicanTheme
+        path: theme
+
+    - name: Build and publish
       run: |
+        git config user.name github-actions
+        git config user.email github-actions@github.com
         pipenv run invoke publish
 
     # - name: Deploy to GitHub Pages
