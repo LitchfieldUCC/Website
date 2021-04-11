@@ -1,0 +1,8 @@
+God's Crayon Box
+================
+
+:author: Pastor Pam Hahn
+:category: Kids Corner
+:date: 2021-04-10
+:list_content: <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/2k-e-yb-AdM" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+:more_to_read: False
