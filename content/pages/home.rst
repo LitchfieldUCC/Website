@@ -35,3 +35,9 @@ To contact us by phone, please leave a message at:
 | (330) 723-5835
 
 And we will get back to you as soon as possible.
+
+
+Special Events
+--------------
+
+Friday, June 10th at 6:30pm the Ice Cream Social will be sponsored by the LUCC.
