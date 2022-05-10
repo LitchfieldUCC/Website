@@ -13,7 +13,7 @@ Weekly `podcasts </podcast>`_ will continue to be posted on the website and soon
 
 .. We are now publishing our Sunday Sermons from Pastor Pam Hahn as a `podcast </podcast>`_.
 
-.. Our Sunday Service starts at 10:00 am every Sunday.
+Sunday Service is 9:00 am.
 
 .. We host Communion on the first Sunday of every Month.
 
