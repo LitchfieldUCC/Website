@@ -18,6 +18,7 @@ Special Events
 --------------
 
 June 10, 2022 – Ice Cream Social @ Litchfield Circle
+
 July 14-16, 2022 – Yard Sale
 
 Check back often for more events.
